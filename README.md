@@ -12,6 +12,6 @@ MIGUEL BRAVO
 Link Scrumy:
 http://scrumy.com/gladness62limned#
 
-Bítacora (GoogleDocs):
-https://docs.google.com/spreadsheet/ccc?key=0AiH9P4VbcH6rdFZmWXYwM2g5Y1czR0ZrZHNUbXZuVEE&pli=1#gid=0
+Bítacora (GoogleDocs):                                                                             
+https://docs.google.com/spreadsheet/ccc?key=0AiH9P4VbcH6rdFZmWXYwM2g5Y1czR0ZrZHNUbXZuVEE
 
